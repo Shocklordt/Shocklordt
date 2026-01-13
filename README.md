@@ -1,4 +1,4 @@
-## Welcome
+## Hail, traveler!
 
 You find yourself in the domain of Arseniy Sergeenko. State your purpose.
 
